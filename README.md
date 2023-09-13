@@ -1,4 +1,4 @@
-### я пидар👋
+### я не пидар👋
 
 ### Интеллектуальные ИСИТ
 https://drive.google.com/drive/folders/1jyDnf93uVqdsYxuppCK5Xx1Ahma_0zES </br>
