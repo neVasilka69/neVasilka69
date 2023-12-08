@@ -1,4 +1,4 @@
-### я не пидар👋
+### я не [пидар](https://github.com/Vasilka69)👋
 
 ### [Интеллектуальные ИСИТ](https://drive.google.com/drive/folders/1jyDnf93uVqdsYxuppCK5Xx1Ahma_0zES) </br>
 https://drive.google.com/drive/folders/1jyDnf93uVqdsYxuppCK5Xx1Ahma_0zES </br>
