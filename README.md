@@ -1,8 +1,4 @@
 ### я не [пидар](https://github.com/Vasilka69)👋
 
-### [Интеллектуальные ИСИТ](https://drive.google.com/drive/folders/1jyDnf93uVqdsYxuppCK5Xx1Ahma_0zES) </br>
-https://drive.google.com/drive/folders/1jyDnf93uVqdsYxuppCK5Xx1Ahma_0zES </br>
-### [Статистические методы обработки информации](https://drive.google.com/drive/folders/1hQEN1Bsa194XCQ0e4lPD0Aa_dMymt0jr) </br>
-https://drive.google.com/drive/folders/1hQEN1Bsa194XCQ0e4lPD0Aa_dMymt0jr </br>
-### [Администрирование ИС](https://disk.yandex.ru/d/2x2bJi0B3SrBKY) </br>
-https://disk.yandex.ru/d/2x2bJi0B3SrBKY
+### [Корпоративные информационные системы](https://disk.yandex.ru/d/_9T9AQG1iQBH6w) </br>
+https://disk.yandex.ru/d/_9T9AQG1iQBH6w </br>
